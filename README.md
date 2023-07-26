@@ -7,7 +7,7 @@
 
 ### Контакты
 - +7950 951 09 70
-- ttesste215@gmail.com
+- kenyfunist@gmail.com
 - https://github.com/theKing313/
   
 ## Навыки
